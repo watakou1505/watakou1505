@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning data science  
 - 💼 I’m also involved in planning and organizing events as part of a student organization  
 - 💞️ I’m looking to collaborate on exciting projects  
-- 📫 How to reach me:   
+- 📫 How to reach me: https://www.instagram.com/watakoooooow?igsh=MWF2NzZnM2ZvMmVraA%3D%3D&utm_source=qr
 - 😄 Pronouns: Watakou  
 - ⚡ Fun fact: I am interested in Finance and creating event.
 
